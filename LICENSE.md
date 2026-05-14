@@ -1,4 +1,4 @@
-
+Download Free rivals Script best for rivals and experience the ultimate in gameplay enhancement with private server access and god mode. Designed for gamers who demand the best,
 
 
 
